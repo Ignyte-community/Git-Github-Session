@@ -1,2 +1,2 @@
 1) chaitrali kakde
-2) Sujal Shrivastava
+2) Sujal
